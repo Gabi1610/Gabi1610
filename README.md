@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Gabi1610
+- 👀 I’m interested in technology development, lately I focus on Blockchain 
+- 🌱 I’m currently learning
+- I know business development, Q&A and finance.
+- 💞️ I’m looking to collaborate with devs
+- 📫 How to reach me: live:8ca6213468a478bd 
